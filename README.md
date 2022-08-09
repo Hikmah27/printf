@@ -1,1 +1,1 @@
-alx team project by UmarFaruq Adam and Imran Suleiman 
+alx team project by Olanipekun Hikmah Kikelomo and Francis O. Oguaju. 
